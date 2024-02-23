@@ -1,2 +1,3 @@
-![IMG_20231209_084848](https://github.com/IrfanDect/ohh/assets/70370681/42c9d163-3600-4277-b838-bb7d8bbbee62)
-# Anak
+![Screenshot_20240217-095637](https://github.com/IrfanDect/b4ko-peneker_As_Ingfo/assets/70370681/0b32fe42-ca26-4b98-b813-3a81fc868328)
+
+# b4ko Peneker
